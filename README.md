@@ -1,4 +1,4 @@
-🌿ANJOLINA PRADHAN <br>
+<b>🌿ANJOLINA PRADHAN <b><br>
  Computer Engineering Student | Tech Enthusiast | Content Creator
 
 Hi, I'm Anjolina Pradhan, an 18-year-old Computer Engineering student passionate about technology, creativity, and storytelling.
